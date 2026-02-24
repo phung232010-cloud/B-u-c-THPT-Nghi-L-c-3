@@ -1,1 +1,0 @@
-# B-u-c-THPT-Nghi-L-c-3
